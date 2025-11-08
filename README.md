@@ -1,1 +1,0 @@
-# wordlock-privacy-policy
